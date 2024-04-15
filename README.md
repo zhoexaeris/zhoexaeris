@@ -1,7 +1,13 @@
-## ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆ welcome to my space 🌟
+## ⋆｡˚ ☁︎ ˚｡⋆｡˚☽˚｡⋆ welcome to my space ♡
+### Hi, I am Zhoe ( ˘͈ ᵕ ˘͈♡)
+I am an aspiring <b>UI/UX designer</b> and <b>web developer</b> based in the Philippines.
 
-I am Zhoe, an aspiring UI/UX designer and web developer based in the Philippines. 
+#### About Me!
+♡ Currently a junior in De La Salle University Manila. <br>
+♡ I love making designs and implementing it as a new, engaging, and user-friendly application. <br>
+♡ I have a dog named Aizu ˙ᵕ˙
 
-Currently a junior in De La Salle University Manila. I love making designs and implementing it as a new, engaging, and user-friendly application.
+˖⁺‧₊˚♡˚₊‧⁺˖ If you want to know me more, feel free to visit [my portfolio](https://zhoe-aeris.vercel.app/) 
 
-If you want to know me more, feel free to visit [my portfolio]([https://zhoe-aeris.vercel.app/]) ♡ʕ•ᴥ•ʔ♡
+#### thanks for visiting! ٩(ˊᗜˋ*)و ♡
+
